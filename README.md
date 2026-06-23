@@ -1,5 +1,5 @@
 Ishan Ughade
 
-undergrad student building real products before most people think that's possible                                                                                                                  
+undergrad student                                                                                                                                                                              🧠 Full-stack dev · 🔧 Systems Builder · 🚀 Always Debugging Life 
 [x](https://x.com/IshxnUgh)  | [email](mailto:ishanughade533@gmail.com)
 
